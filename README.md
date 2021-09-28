@@ -1,0 +1,2 @@
+# marussyk.live
+personal blog
